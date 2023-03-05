@@ -1,4 +1,4 @@
-<img alt="Sergey" width="100" align="right" src="https://thumbs.gfycat.com/FrenchClosedIchneumonfly-max-1mb.gif">
+<img alt="Sergey" width="150" align="right" src="https://thumbs.gfycat.com/FrenchClosedIchneumonfly-max-1mb.gif">
 
 ### Skills
 
